@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hobbyist ata
+LF Internship
 
 
 ## 🌐 Socials:
